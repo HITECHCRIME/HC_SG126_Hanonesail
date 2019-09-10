@@ -17,6 +17,20 @@ Description.
 
 ```
 
+Let not your indecision become the outcome,
+Of your entire life, blank and empty of any income.
+To the best of lives will the winner take all.
+Losing a  lifestyle is the first step, to conquer this formal ball.
+
+Forget dancing to the tune of others,
+Regret nothing as you line yourself into a cloud that smothers.
+Climb out struggling for oxygen as if each molecule 
+was a dream coming closer to a destined vestibule.
+
+So small that you never would have seen it.
+If not for the self discovery of a future fit
+
+- add the rest
 
 ```
 
