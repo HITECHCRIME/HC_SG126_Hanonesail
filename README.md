@@ -30,6 +30,30 @@ was a dream coming closer to a destined vestibule.
 So small that you never would have seen it.
 If not for the self discovery of a future fit
 
+
+...become the outcome of your entire life.
+
+let not your indecision become the outcome,
+of your entire life, blank and empty of any income
+to the best of lives winner takes it all
+winner takes it all aye
+
+losing lifestyle is the first step
+to conquer this formal ball
+this formal ball aye aye
+
+forget dancing to the tune of others
+regret nothing as you line yourself 
+into a cloud that smothers aye
+
+climb out struggling for oxygen 
+as if each molecule 
+was a dream coming closer 
+to a destined vestibule
+
+So small that you never would have seen it.
+If not for the self discovery of a future fit
+
 - add the rest
 
 ```
