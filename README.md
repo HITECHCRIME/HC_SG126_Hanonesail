@@ -34,8 +34,8 @@ If not for the self discovery of a future fit
 
 let not your indecision become the outcome,
 of your entire life, blank and empty of any income
-to the best of lives winner takes it all
-winner takes it all aye
+to the best of lives, the outcome of your entire life,
+winner takes it all winner takes it all aye
 
 losing lifestyle is the first step
 to conquer this formal ball
