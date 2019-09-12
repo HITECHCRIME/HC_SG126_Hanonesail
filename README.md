@@ -16,7 +16,6 @@ FREE_BONES_x_NIGHT_LOVELL_TYPE_BEAT_UPRA_prod._HERTHA-youtube-sE4N2MT47k4-251
 ## Lyrics
 
 ```
-
 Let not your indecision become the outcome,
 Of your entire life, blank and empty of any income.
 To the best of lives will the winner take all.
