@@ -2,7 +2,7 @@
 
 # MOTHNODE x HAN_ NEBULAE 
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
