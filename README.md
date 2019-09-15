@@ -54,7 +54,6 @@ So small that you never would have seen it.
 If not for the self discovery of a future fit
 
 - add the rest
-
 ```
 
 ## Lyrics Production
